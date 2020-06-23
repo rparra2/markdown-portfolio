@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Image of a cute snorlax](https://data.whicdn.com/images/78880470/original.png)
