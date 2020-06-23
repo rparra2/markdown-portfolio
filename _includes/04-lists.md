@@ -1,0 +1,4 @@
+- Favorite things:
+- learning
+- Playing videogames
+- Exercise

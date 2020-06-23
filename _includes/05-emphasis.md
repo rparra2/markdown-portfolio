@@ -1,0 +1,1 @@
+I guess with time I've discovered I'm quite tenacious. I work __really__ hard when I set my mind to something and don't let go until it has becomae reality. _On the other hand_, I don't put in too much effort when it comes to things I'm not passionate about or plainly disinterested in.
