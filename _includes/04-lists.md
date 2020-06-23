@@ -1,4 +1,4 @@
-Favorite things:
-*learning
-*Playing videogames
-*Exercise
+- Favorite things:
+- learning
+- Playing videogames
+- Exercise
